@@ -1,1 +1,1 @@
-# webinstiute
+# webinstitute
